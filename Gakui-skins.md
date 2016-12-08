@@ -11,7 +11,7 @@ If you still can't get the skin to work mention me in twitch chat and explain th
 # [-+Seouless'v.6 (Kashima))](https://puu.sh/sIjtW/78c817e5d7.osk)
 ![](https://puu.sh/sIjt4/dba0dd5617.jpg)
 
-# [Guchangedeworld))](https://puu.sh/sIjCd/cb81ab8134.osk)
+# [Guchangedeworld](https://puu.sh/sIjCd/cb81ab8134.osk)
 ![](https://puu.sh/sIjAC/f471cecd15.jpg)
 
 # [-+Cookiezi + Chitanda)](https://puu.sh/sIj3J/023629f951.osk)
