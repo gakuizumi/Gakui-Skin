@@ -1,8 +1,5 @@
 # GakuiZumi skin compilation ^^
 
-[b]**Click on the skin name to download.[/b]
-
-
 # [-+Seouless'v.7 (Momoko)](https://puu.sh/sIk7i/5e357bd59f.osk)
 ![](https://puu.sh/sIk2C/56d594ec16.jpg)
 
