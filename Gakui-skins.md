@@ -1,9 +1,7 @@
-# GakuiZumi skin compilation (Credit By Cookiezi)
+# GakuiZumi skin compilation ^^
 
-**Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
+**Click on the skin name to download.
 
-**Even if it says can't import the skins should work fine. If you're sure it doesn't work make sure you are on beta or cuttingedge. 
-If you still can't get the skin to work mention me in twitch chat and explain the problem in detail.**
 
 # [-+Seouless'v.7 (Momoko)](https://puu.sh/sIk7i/5e357bd59f.osk)
 ![](https://puu.sh/sIk2C/56d594ec16.jpg)
@@ -14,13 +12,13 @@ If you still can't get the skin to work mention me in twitch chat and explain th
 # [Guchangedeworld](https://puu.sh/sIjCd/cb81ab8134.osk)
 ![](https://puu.sh/sIjAC/f471cecd15.jpg)
 
-# [-+Cookiezi + Chitanda)](https://puu.sh/sIj3J/023629f951.osk)
+# [-+Cookiezi + Chitanda](https://puu.sh/sIj3J/023629f951.osk)
 ![](https://puu.sh/sIj76/ddc7bfbea9.jpg)
 
 # [SameSkinButNoRingHitCirclesWeirdName](https://puu.sh/sIihP/e7f6e92219.osk)
 ![](https://puu.sh/sIihC/6ce73f5dbe.jpg)
 
-# [-TECHNOGALAXY-)](https://puu.sh/sIjSL/1c456d8d51.osk)
+# [-TECHNOGALAXY-](https://puu.sh/sIjSL/1c456d8d51.osk)
 ![](https://puu.sh/sIjQH/4b54e34acf.jpg)
 
 # [Reeses Puffs Skin](https://puu.sh/sIi9y/f1fd9d7881.osk)
