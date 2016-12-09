@@ -20,8 +20,19 @@
 # [Omgforz](https://puu.sh/sJlYd/532e996ff4.osk)
 ![](https://puu.sh/sJlXZ/81680b9b38.png)
 
+# [Happystick](https://puu.sh/sJmqc/8d52420572.osk)
+![](https://puu.sh/sJmqf/c05036630d.png)
+
 # [-YUGEN FINAL-](https://puu.sh/sJm79/2d5ee025df.osk)
 ![](https://puu.sh/sJm6A/401590c058.png)
+
+# [Rafis](https://puu.sh/sJmDP/479197b754.osk)
+![](https://puu.sh/sJmDo/ca6109f34f.png)
+
+# [MegpoidGumi](https://puu.sh/sJmTc/7899fe748f.osk)
+![](https://puu.sh/sJmSF/479c7434af.png)
+
+
 
 # [-+Cookiezi + Chitanda](https://puu.sh/sIj3J/023629f951.osk)
 ![](https://puu.sh/sIj76/ddc7bfbea9.jpg)
