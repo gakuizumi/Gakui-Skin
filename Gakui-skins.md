@@ -1,7 +1,8 @@
 # GakuiZumi (My Favorite skin + Edit some Skins)
 
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
-**I will Try To add and Modify some Skins Later ^^.
+
+**I will Try To add and Modify some Skins Later ^^.**
 
 # [+-Cookiezi+Seouless](https://puu.sh/sKshq/eb2619b493.osk)
 ![](https://puu.sh/sKnsn/79c3a61bb7.png)
