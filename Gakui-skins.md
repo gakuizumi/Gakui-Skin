@@ -11,6 +11,13 @@
 # [-+Seouless'v.6 (Kashima)](https://puu.sh/sIjtW/78c817e5d7.osk)
 ![](https://puu.sh/sIjt4/dba0dd5617.jpg)
 
+# [-+Cookiezi(Ao no Kanata no Four Rhythm)](https://puu.sh/sKsXG/2de19a3713.osk)  // [-+Cookiezi(Ao no Kanata no Four Rhythm) v.2](https://puu.sh/sKt3P/cb8e8705a8.osk)
+![](https://puu.sh/sKsWL/cb48362d89.png)
+
+# [-+Cookiezi(Ao no Kanata no Four Rhythm)'2](https://puu.sh/sKtUv/bb4effc5fd.osk)
+![](https://puu.sh/sKtT7/6de5f17a79.png)
+
+
 # [Chitanda](https://puu.sh/sKp2L/ace61da8a8.osk) // [Chitanda v.2](https://puu.sh/sKp9x/d26f1ec07e.osk)
 ![](https://puu.sh/sKp43/8a077e62a2.png)
 
@@ -19,6 +26,9 @@
 
 # [Unko Release](https://puu.sh/sJmgi/2f20f13b2b.osk)
 ![](https://puu.sh/sJmeQ/ac624cbdc5.png)
+
+# [TobiGH3+Yugen](https://puu.sh/sKpiO/2dbb52faee.osk)
+![](https://puu.sh/sKpii/c5e0a339ed.png)
 
 # [Guchangedeworld](https://puu.sh/sIjCd/cb81ab8134.osk)
 ![](https://puu.sh/sIjAC/f471cecd15.jpg)
