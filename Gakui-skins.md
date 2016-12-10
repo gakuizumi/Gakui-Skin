@@ -15,15 +15,23 @@
 # [-+Cookiezi(Ao no Kanata no Four Rhythm) v.2](https://puu.sh/sKt3P/cb8e8705a8.osk)
 ![](https://puu.sh/sKsWL/cb48362d89.png)
 
+# [-+Cookiezi + Chitanda](https://puu.sh/sIj3J/023629f951.osk)
+![](https://puu.sh/sIj76/ddc7bfbea9.jpg)
+
 # [-+Cookiezi(Ao no Kanata no Four Rhythm)'2](https://puu.sh/sKtUv/bb4effc5fd.osk)
 ![](https://puu.sh/sKtT7/6de5f17a79.png)
 
+# [-+Cookiezi (2015)](https://puu.sh/sIfY6/011cd7168e.osk)
+![](https://puu.sh/sIg63/5e6571db5f.jpg)
 
-# [Chitanda](https://puu.sh/sKp2L/ace61da8a8.osk) // [Chitanda v.2](https://puu.sh/sKp9x/d26f1ec07e.osk)
-![](https://puu.sh/sKp43/8a077e62a2.png)
+# [Cookiezi (Old)](https://puu.sh/sIjJY/f8e128cc47.osk)
+![](https://puu.sh/sIjJW/93aeb0b72d.jpg)
 
 # [FunOrange(crystallized+cookiezi)](https://puu.sh/sJlJo/c939ec0915.osk)
 ![](https://puu.sh/sJlFj/3752e21733.png)
+
+# [Chitanda](https://puu.sh/sKp2L/ace61da8a8.osk) // [Chitanda v.2](https://puu.sh/sKp9x/d26f1ec07e.osk)
+![](https://puu.sh/sKp43/8a077e62a2.png)
 
 # [Unko Release](https://puu.sh/sJmgi/2f20f13b2b.osk)
 ![](https://puu.sh/sJmeQ/ac624cbdc5.png)
@@ -58,12 +66,6 @@
 # [MegpoidGumi](https://puu.sh/sJmTc/7899fe748f.osk)
 ![](https://puu.sh/sJmSF/479c7434af.png)
 
-# [-+Cookiezi + Chitanda](https://puu.sh/sIj3J/023629f951.osk)
-![](https://puu.sh/sIj76/ddc7bfbea9.jpg)
-
-# [SameSkinButNoRingHitCirclesWeirdName](https://puu.sh/sIihP/e7f6e92219.osk)
-![](https://puu.sh/sIihC/6ce73f5dbe.jpg)
-
 # [-TechnoCandy-](https://puu.sh/sKocl/5a5b8e56c1.osk)
 ![](https://puu.sh/sKob4/e6d42805da.png)
 
@@ -73,8 +75,4 @@
 # [Reeses Puffs Skin](https://puu.sh/sIi9y/f1fd9d7881.osk)
 ![](https://puu.sh/sIib0/7792a59443.jpg)
 
-# [-+Cookiezi (2015)](https://puu.sh/sIfY6/011cd7168e.osk)
-![](https://puu.sh/sIg63/5e6571db5f.jpg)
 
-# [Cookiezi (Old)](https://puu.sh/sIjJY/f8e128cc47.osk)
-![](https://puu.sh/sIjJW/93aeb0b72d.jpg)
