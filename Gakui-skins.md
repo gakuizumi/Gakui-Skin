@@ -23,7 +23,7 @@
 # [Omgforz](https://puu.sh/sKnZU/d0b7219be4.osk)
 ![](https://puu.sh/sKo1P/2ef121ce9b.png)
 
-# [Happystick](https://puu.sh/sJmqc/8d52420572.osk)//[Happystick v.2](https://puu.sh/sKnLg/7f7e4542e4.osk)
+# [Happystick](https://puu.sh/sJmqc/8d52420572.osk) // [Happystick v.2](https://puu.sh/sKnLg/7f7e4542e4.osk)
 ![](https://puu.sh/sJmqf/c05036630d.png)
 
 # [Happystick 3.0](https://puu.sh/sKnBS/c7d159fdf6.osk)
