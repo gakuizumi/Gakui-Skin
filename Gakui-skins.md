@@ -2,16 +2,17 @@
 
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
 
-# [+-Cookiezi+Seouless](https://puu.sh/sKnpq/860e809ed6.osk)
+# [+-Cookiezi+Seouless](https://puu.sh/sKshq/eb2619b493.osk)
 ![](https://puu.sh/sKnsn/79c3a61bb7.png)
 
-# [-+Seouless'v.7 (Momoko)](https://puu.sh/sIk7i/5e357bd59f.osk)
+# [-+Seouless'v.7 (Momoko)](https://puu.sh/sKskX/5de105dcf3.osk)
 ![](https://puu.sh/sIk2C/56d594ec16.jpg)
 
 # [-+Seouless'v.6 (Kashima)](https://puu.sh/sIjtW/78c817e5d7.osk)
 ![](https://puu.sh/sIjt4/dba0dd5617.jpg)
 
-# [-+Cookiezi(Ao no Kanata no Four Rhythm)](https://puu.sh/sKsXG/2de19a3713.osk)  // [-+Cookiezi(Ao no Kanata no Four Rhythm) v.2](https://puu.sh/sKt3P/cb8e8705a8.osk)
+# [-+Cookiezi(Ao no Kanata no Four Rhythm)](https://puu.sh/sKsXG/2de19a3713.osk)  
+# [-+Cookiezi(Ao no Kanata no Four Rhythm) v.2](https://puu.sh/sKt3P/cb8e8705a8.osk)
 ![](https://puu.sh/sKsWL/cb48362d89.png)
 
 # [-+Cookiezi(Ao no Kanata no Four Rhythm)'2](https://puu.sh/sKtUv/bb4effc5fd.osk)
