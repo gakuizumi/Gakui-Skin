@@ -11,12 +11,11 @@
 # [-+Seouless'v.6 (Kashima)](https://puu.sh/sIjtW/78c817e5d7.osk)
 ![](https://puu.sh/sIjt4/dba0dd5617.jpg)
 
-# [-+Cookiezi(Ao no Kanata no Four Rhythm)](https://puu.sh/sKuQT/fc23efafb3.osk)  
-# [-+Cookiezi(Ao no Kanata no Four Rhythm) v.2](https://puu.sh/sKuKu/1efd6bf36b.osk)
+# [-+Cookiezi(Kurashina ver.)](https://puu.sh/sKDrO/d50758a9d5.osk) // [-+Cookiezi(Tobisawa ver.)](https://puu.sh/sKDrO/d50758a9d5.osk)
 ![](https://puu.sh/sKsWL/cb48362d89.png)
 
-# [-+Cookiezi(Ao no Kanata no Four Rhythm'2)](https://puu.sh/sKtUv/bb4effc5fd.osk)
-![](https://puu.sh/sKtT7/6de5f17a79.png)
+
+
 
 # [-+Cookiezi + Chitanda](https://puu.sh/sIj3J/023629f951.osk)
 ![](https://puu.sh/sIj76/ddc7bfbea9.jpg)
