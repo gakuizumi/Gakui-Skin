@@ -11,13 +11,13 @@
 # [-+Seouless'v.6 (Kashima)](https://puu.sh/sIjtW/78c817e5d7.osk)
 ![](https://puu.sh/sIjt4/dba0dd5617.jpg)
 
-# [-+Cookiezi(Tobisawa ver.)](https://puu.sh/sKEVN/97801ff91f.osk)
+# [-+Cookiezi (Tobisawa Menu ver.)](https://puu.sh/sKEVN/97801ff91f.osk)
 ![](https://puu.sh/sKsWL/cb48362d89.png)
 
-# [-+Cookiezi(Kurashina ver.)](https://puu.sh/sKEVR/22c15a70ca.osk)
+# [-+Cookiezi (Kurashina Menu ver.)](https://puu.sh/sKEVR/22c15a70ca.osk)
 ![](https://puu.sh/sKtT7/6de5f17a79.png)
 
-# [-+Cookiezi + Chitanda](https://puu.sh/sIj3J/023629f951.osk)
+# [-+Cookiezi+Chitanda](https://puu.sh/sIj3J/023629f951.osk)
 ![](https://puu.sh/sIj76/ddc7bfbea9.jpg)
 
 # [-+Cookiezi (2015)](https://puu.sh/sIfY6/011cd7168e.osk)
