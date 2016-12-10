@@ -2,6 +2,9 @@
 
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
 
+# [+-Cookiezi+Seouless](https://puu.sh/sKnpq/860e809ed6.osk)
+![](https://puu.sh/sKnsn/79c3a61bb7.png)
+
 # [-+Seouless'v.7 (Momoko)](https://puu.sh/sIk7i/5e357bd59f.osk)
 ![](https://puu.sh/sIk2C/56d594ec16.jpg)
 
@@ -20,8 +23,11 @@
 # [Omgforz](https://puu.sh/sJlYd/532e996ff4.osk)
 ![](https://puu.sh/sJlXZ/81680b9b38.png)
 
-# [Happystick](https://puu.sh/sJmqc/8d52420572.osk)
+# [Happystick](https://puu.sh/sJmqc/8d52420572.osk) [Happystick v.2](https://puu.sh/sKnLg/7f7e4542e4.osk)
 ![](https://puu.sh/sJmqf/c05036630d.png)
+
+# [Happystick 3.0](https://puu.sh/sKnBS/c7d159fdf6.osk)
+![](https://puu.sh/sKnBD/56b20062fa.png)
 
 # [-YUGEN FINAL-](https://puu.sh/sJm79/2d5ee025df.osk)
 ![](https://puu.sh/sJm6A/401590c058.png)
@@ -31,8 +37,6 @@
 
 # [MegpoidGumi](https://puu.sh/sJmTc/7899fe748f.osk)
 ![](https://puu.sh/sJmSF/479c7434af.png)
-
-
 
 # [-+Cookiezi + Chitanda](https://puu.sh/sIj3J/023629f951.osk)
 ![](https://puu.sh/sIj76/ddc7bfbea9.jpg)
