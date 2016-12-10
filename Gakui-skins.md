@@ -11,6 +11,9 @@
 # [-+Seouless'v.6 (Kashima)](https://puu.sh/sIjtW/78c817e5d7.osk)
 ![](https://puu.sh/sIjt4/dba0dd5617.jpg)
 
+# [Chitanda](https://puu.sh/sKp2L/ace61da8a8.osk) // [Chitanda v.2](https://puu.sh/sKp9x/d26f1ec07e.osk)
+![](https://puu.sh/sKp43/8a077e62a2.png)
+
 # [FunOrange(crystallized+cookiezi)](https://puu.sh/sJlJo/c939ec0915.osk)
 ![](https://puu.sh/sJlFj/3752e21733.png)
 
@@ -53,7 +56,7 @@
 # [-TechnoCandy-](https://puu.sh/sKocl/5a5b8e56c1.osk)
 ![](https://puu.sh/sKob4/e6d42805da.png)
 
-# [-TECHNOGALAXY-](https://puu.sh/sIjSL/1c456d8d51.osk)
+# [-TechnoGalaxy-](https://puu.sh/sIjSL/1c456d8d51.osk)
 ![](https://puu.sh/sIjQH/4b54e34acf.jpg)
 
 # [Reeses Puffs Skin](https://puu.sh/sIi9y/f1fd9d7881.osk)
