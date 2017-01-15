@@ -3,7 +3,7 @@
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
 **I will Try To add and Modify some Skins Later ^^.
 
-# [+-Cookiezi+Seouless](https://puu.sh/sKshq/eb2619b493.osk)
+# [+-Cookiezi+Seouless](https://puu.sh/sKshq/eb2619b493.osk) // [V.2 (Modify)](https://puu.sh/tndcN/9648dd4c10.osk)
 ![](https://puu.sh/sKnsn/79c3a61bb7.png)
 
 # [-+Seouless'v.7 (Momoko)](https://puu.sh/sKskX/5de105dcf3.osk)
@@ -17,9 +17,6 @@
 
 # [-+Cookiezi (Kurashina Menu ver.)](https://puu.sh/sKEVR/22c15a70ca.osk)
 ![](https://puu.sh/sKtT7/6de5f17a79.png)
-
-# [-+Cookiezi+Chitanda](https://puu.sh/sIj3J/023629f951.osk)
-![](https://puu.sh/sIj76/ddc7bfbea9.jpg)
 
 # [-+Cookiezi (2015)](https://puu.sh/sIfY6/011cd7168e.osk)
 ![](https://puu.sh/sIg63/5e6571db5f.jpg)
@@ -57,7 +54,7 @@
 # [YUGEN RED (Grimblee Edit)](https://puu.sh/sKoq3/4219c34e94.osk)
 ![](https://puu.sh/sKopl/6e202dac21.png)
 
-# [-YUGEN FINAL-](https://puu.sh/sJm79/2d5ee025df.osk)
+# [YUGEN FINAL](https://puu.sh/sJm79/2d5ee025df.osk)
 ![](https://puu.sh/sJm6A/401590c058.png)
 
 # [Rafis](https://puu.sh/sJmDP/479197b754.osk)
