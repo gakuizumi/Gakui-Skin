@@ -3,19 +3,23 @@
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
 **I will Try To add and Modify some Skins Later ^^.
 
+
 # [SKINWITHOUTNAME](http://puu.sh/rFd0v/ec1ed16d14.osk)
 ![](https://puu.sh/tngA3/ffdde45bee.png)
 
 # [Re:trymenT](https://puu.sh/sRt7W/042320ad06.osk)
 ![](https://puu.sh/tnh2f/1c917d4692.png)
 
+# [Xilver x Recia](https://puu.sh/ueka8/48b5948c34.osk)
+![](https://puu.sh/uek85/515500cef4.png)
+
+# [Xilver (V.2)](https://puu.sh/uekbg/a2a39a1406.osk)
+![](https://puu.sh/uek9y/c21d755929.png)
+
 # [PLANET](https://puu.sh/sYhtC/658f5dc05a.osk)
 ![](https://puu.sh/togAW/7aaf15a63a.png)
 
-# [PLASMA VISION](http://puu.sh/t4HJJ/72b440662f.osk)
-![](https://puu.sh/tnhfs/5bf7031646.jpg)
-
-# [+-Cookiezi+Seouless](https://puu.sh/sKshq/eb2619b493.osk) // [V.2 (Modify)](https://puu.sh/tndcN/9648dd4c10.osk)
+# [+-Cookiezi+Seouless](https://puu.sh/sKshq/eb2619b493.osk) && [V.2 (Modify)](https://puu.sh/tndcN/9648dd4c10.osk)
 ![](https://puu.sh/sKnsn/79c3a61bb7.png)
 
 # [-+Seouless'v.7 (Momoko)](https://puu.sh/sKskX/5de105dcf3.osk)
@@ -42,11 +46,9 @@
 # [NekoNet V4.0](http://puu.sh/nigW2/1b16b59f86.osk)
 ![](https://puu.sh/tngsc/fdaa5796cf.png)
 
-# [Chitanda](https://puu.sh/sKp2L/ace61da8a8.osk) // [Chitanda v.2](https://puu.sh/sKp9x/d26f1ec07e.osk)
+# [Chitanda](https://puu.sh/sKp9x/d26f1ec07e.osk)
 ![](https://puu.sh/sKp43/8a077e62a2.png)
 
-# [Unko Release](https://puu.sh/sJmgi/2f20f13b2b.osk)
-![](https://puu.sh/sJmeQ/ac624cbdc5.png)
 
 # [TobiGH3+Yugen](https://puu.sh/sKpiO/2dbb52faee.osk)
 ![](https://puu.sh/sKpii/c5e0a339ed.png)
@@ -57,14 +59,12 @@
 # [Omgforz](https://puu.sh/sKnZU/d0b7219be4.osk)
 ![](https://puu.sh/sKo1P/2ef121ce9b.png)
 
-# [Happystick](https://puu.sh/sJmqc/8d52420572.osk) // [Happystick v.2](https://puu.sh/sKnLg/7f7e4542e4.osk)
+# [Happystick](https://puu.sh/sJmqc/8d52420572.osk)
 ![](https://puu.sh/sJmqf/c05036630d.png)
 
 # [Happystick 3.0](https://puu.sh/sKnBS/c7d159fdf6.osk)
 ![](https://puu.sh/sKnBD/56b20062fa.png)
 
-# [WubWoofWolf](https://puu.sh/sKojU/82a6c04a8d.png)
-![](https://puu.sh/sKojU/82a6c04a8d.png)
 
 # [YUGEN RED (Grimblee Edit)](https://puu.sh/sKoq3/4219c34e94.osk)
 ![](https://puu.sh/sKopl/6e202dac21.png)
