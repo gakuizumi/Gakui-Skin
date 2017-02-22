@@ -19,7 +19,7 @@
 # [PLANET](https://puu.sh/sYhtC/658f5dc05a.osk)
 ![](https://puu.sh/togAW/7aaf15a63a.png)
 
-# [+-Cookiezi+Seouless](https://puu.sh/sKshq/eb2619b493.osk) && [V.2 (Modify)](https://puu.sh/tndcN/9648dd4c10.osk)
+# [+-Cookiezi+Seouless (Mod)](https://puu.sh/sKshq/eb2619b493.osk)
 ![](https://puu.sh/sKnsn/79c3a61bb7.png)
 
 # [-+Seouless'v.7 (Momoko)](https://puu.sh/sKskX/5de105dcf3.osk)
@@ -46,7 +46,6 @@
 # [Chitanda](https://puu.sh/sKp9x/d26f1ec07e.osk)
 ![](https://puu.sh/sKp43/8a077e62a2.png)
 
-
 # [TobiGH3+Yugen](https://puu.sh/sKpiO/2dbb52faee.osk)
 ![](https://puu.sh/sKpii/c5e0a339ed.png)
 
@@ -61,7 +60,6 @@
 
 # [Happystick 3.0](https://puu.sh/sKnBS/c7d159fdf6.osk)
 ![](https://puu.sh/sKnBD/56b20062fa.png)
-
 
 # [YUGEN RED (Grimblee Edit)](https://puu.sh/sKoq3/4219c34e94.osk)
 ![](https://puu.sh/sKopl/6e202dac21.png)
