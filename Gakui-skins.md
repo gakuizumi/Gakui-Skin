@@ -37,9 +37,6 @@
 # [-+Cookiezi (2015)](https://puu.sh/sIfY6/011cd7168e.osk)
 ![](https://puu.sh/sIg63/5e6571db5f.jpg)
 
-# [Cookiezi (Old)](https://puu.sh/sIjJY/f8e128cc47.osk)
-![](https://puu.sh/sIjJW/93aeb0b72d.jpg)
-
 # [FunOrange(crystallized+cookiezi)](https://puu.sh/sJlJo/c939ec0915.osk)
 ![](https://puu.sh/sJlFj/3752e21733.png)
 
