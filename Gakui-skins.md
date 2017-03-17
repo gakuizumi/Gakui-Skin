@@ -3,7 +3,7 @@
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
 **I will Try To add and Edit some Skins Later ^^.
 
-# [Aesthetic 1.3)](https://puu.sh/uMR0q/b20a598600.osk)
+# [Aesthetic 1.3](https://puu.sh/uMR0q/b20a598600.osk)
 ![](https://puu.sh/uMR65/774fce3430.png)
 
 # [Cookiezi (2015)](https://puu.sh/sIfY6/011cd7168e.osk)
