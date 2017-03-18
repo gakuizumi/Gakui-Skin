@@ -9,10 +9,10 @@
 # [Cookiezi (2015)](https://puu.sh/sIfY6/011cd7168e.osk)
 ![](https://puu.sh/sIg63/5e6571db5f.jpg)
 
-# [Cookiezi (Kurashina ver.) -Modified- ](https://puu.sh/uOnZA/45c645faf2.osk)
+# [Cookiezi (Kurashina ver.) -Modified- ](https://puu.sh/uOs6O/8b0e104170.osk)
 ![](https://puu.sh/sKtT7/6de5f17a79.png)
 
-# [Cookiezi (Tobisawa ver.)](https://puu.sh/sKEVN/97801ff91f.osk)
+# [Cookiezi (Tobisawa ver.) -Modified- ](https://puu.sh/uOs5g/b1c037ba9a.osk)
 ![](https://puu.sh/sKsWL/cb48362d89.png)
 
 # [Cookiezi+Seouless (Edit)](https://puu.sh/sKshq/eb2619b493.osk)
