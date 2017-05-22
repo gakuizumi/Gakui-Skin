@@ -1,7 +1,7 @@
-# GakuiZumi (My Favorite skin + Edited some Skins)
+# GakuiZumi
 
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
-**I will try To add and Edit some Skins Later ^^.
+**I will try to add and edit some skins Later ^^.
 
 # [AngelMegumin](https://puu.sh/vXQwv/3eb302edbc.osk)
 ![](https://osu.ppy.sh/ss/8149958)
