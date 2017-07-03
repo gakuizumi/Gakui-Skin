@@ -9,14 +9,17 @@
 # [Angelsim](https://puu.sh/vXQCu/a6d55081eb.osk)
 ![](https://osu.ppy.sh/ss/8149979)
 
-# [HulbeH](https://puu.sh/vXQd9/7e8573dab5.osk)
+# [HulbeH v.1.2](https://puu.sh/wArje/c0dedeaeab.osk)
+![](https://osu.ppy.sh/ss/8498866)
+
+# [HulbeH v.1.3](https://puu.sh/vXQd9/7e8573dab5.osk)
 ![](https://osu.ppy.sh/ss/8149927)
 
-# [Seoul](https://puu.sh/vXPL4/f629e5f467.osk)
-![](https://osu.ppy.sh/ss/8149869)
+# [Seoul (Panmmimi ver.)](https://puu.sh/wArdI/ed2fc9b7c6.osk)
+![](https://osu.ppy.sh/ss/8498824)
 
-# [Sagiri -Edition-](https://puu.sh/vXPRF/25e68148a3.osk)
-![](https://osu.ppy.sh/ss/8149886)
+# [Vaxei](https://puu.sh/wArp9/64a9863a1d.osk)
+![](https://osu.ppy.sh/ss/8498880)
 
 # [WubWoofWolf](https://puu.sh/vXQ5W/ea38db2771.osk)
 ![](https://osu.ppy.sh/ss/8149920)
