@@ -15,7 +15,7 @@
 # [HulbeH v.1.3](https://puu.sh/vXQd9/7e8573dab5.osk)
 ![](https://osu.ppy.sh/ss/8149927)
 
-# [Seoul (Panmmimi ver.)](https://puu.sh/wArdI/ed2fc9b7c6.osk)
+# [Seoul (Panmimi ver.)](https://puu.sh/wArdI/ed2fc9b7c6.osk)
 ![](https://osu.ppy.sh/ss/8498824)
 
 # [Vaxei](https://puu.sh/wArp9/64a9863a1d.osk)
